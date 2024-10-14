@@ -1,0 +1,1 @@
+# Bot-de-Negocia-o-Automatizada-Trading-Bot-
